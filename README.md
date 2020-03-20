@@ -50,7 +50,7 @@ Please let me know: leo at cuckoo.org if any are great or rubbish or you have ot
 
 #### Netflix
 
-- Horrible histories
+- Horrible histories (Dean doesn't like horrible histories)
 - Our planet
 - walking with dinosaurs
 - Blue plannet 
